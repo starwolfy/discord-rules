@@ -16,7 +16,7 @@
 
 (IV) Jokes about sensitive topics are okay but refer to Discord Rules 2.II and 3 . We will do our best to allow for genuine jokes, but we keep our eyes out on controversial jokes a bit more. Just because sometimes the motivations aren't always to truly try and make people laugh.
 
-(V) We do not take action against disinformation as this would be in direct violation against Discord rule 2.1 .
+(V) We do not take action against disinformation as this would be in direct violation against Discord rule 2.I .
 
 
 **3. No bad trolls.**
