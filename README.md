@@ -4,7 +4,7 @@
 
 (I) **NO minors are allowed to be present or to partake in our server or services unless they are accompanied by parental consent and by parental supervision. The games at which our services are aimed at are rated 18+.**
 
-(II) Orderly and respectful conduct from adults around or towards minors is a standard that you must do your best to uphold.
+(II) Orderly and respectful conduct from adults around or towards minors is a standard that you must do your best to uphold at all times.
 
 **1. No NSFW or inappropiate conversations or content.**
 
