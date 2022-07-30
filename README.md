@@ -1,10 +1,10 @@
 **Discord Rules**:
 
-**1. No NSFW conversations or content**.
+**1. No NSFW or inappropiate conversations or content.**
 
 (I) No extreme vulgar, violent, disgusting, brutal or sexually explicit conversations or content.
 
-(II) Assume that there are minors watching and therefore do not go overboard with what you post. You can always DM someone that you know appreciates NSFW themed content, do not share it here.
+(II) **Assume that there are minors watching** and therefore do not go overboard with what you post. You can always DM someone that you know appreciates NSFW themed content, do not share it here.
 
 **2. With respect to freedom of speech.**
 
