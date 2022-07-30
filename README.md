@@ -1,5 +1,9 @@
 **Discord Rules**:
 
+**🔞 0. Regarding minors. 🔞**
+
+(I) **NO minors are allowed to be present or to partake in our server or services unless they are accompanied by parental consent and by parental supervision. The games at which our services are aimed at are rated 18+.**
+
 **1. No NSFW or inappropiate conversations or content.**
 
 (I) No extreme vulgar, violent, disgusting, brutal or sexually explicit conversations or content.
