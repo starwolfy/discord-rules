@@ -6,7 +6,7 @@
 
 (II) Orderly and respectful conduct from adults around or towards minors is a standard that you must do your best to uphold at all times.
 
-**1. No NSFW or inappropiate conversations or content.**
+**1. No NSFW conversations or content.**
 
 (I) No extreme vulgar, violent, disgusting, brutal or sexually explicit conversations or content.
 
